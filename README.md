@@ -1,1 +1,0 @@
-# ShoreTax-Accounting.github.io
